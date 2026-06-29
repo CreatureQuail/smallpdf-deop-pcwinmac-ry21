@@ -1,4 +1,4 @@
-# 
+# Seguro Smallpdf Desktop extensões para Mac OS | Ultimato Smallpdf Desktop extensões para PC Windows. Com aprovações de vários níveis e formulários W-2 e 1099 — otimizado para máximo desempenho em cada plataforma.
 
 
 
